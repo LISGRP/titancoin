@@ -1,1 +1,1 @@
-Greekcoin (GRK)
+Titancoin (LTIT)
